@@ -1,1 +1,1 @@
-# 1C-GitHub
+# Rodrigo Alexandre Santos Ferreira
